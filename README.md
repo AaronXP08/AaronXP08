@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on YouTube
 - 📫 How to reach me, you can't
 - 😄 Pronouns: He/His
-- ⚡ Fun fact: Iam dumb like Soham M
+- ⚡ Fun fact: I am dumb like Soham M
 
 <!---
 AaronXP08/AaronXP08 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
